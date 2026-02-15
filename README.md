@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=kid4rm90s&color=blue)
 # Hi, I'm kid4rm90s! 📚
 
 ### 🚀 Continuous self Learner

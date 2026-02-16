@@ -2,7 +2,7 @@
   <img src="https://komarev.com/ghpvc/?username=kid4rm90s&color=blue&style=flat-square" alt="profile views" />
 </div>
 
-# Hi, I'm Ratna! 👋 📚
+# Hi, I'm kid4rm90s! 👋 📚
 
 ### 🚀 Continuous Self-Learner | Aspiring Developer
 
